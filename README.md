@@ -1,1 +1,0 @@
-# gokaycan.github.io
